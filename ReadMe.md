@@ -1,5 +1,5 @@
 # 💫 About Me:
-Sou analista de dados<br>Procuro trabalhar na minha área<br>
+Sou analista de dados Jr<br>Atuo na area como analista de planejamento<br>22 Anos de Idede<br>Aprendendo Python<br>Busco Trabalhar na área de dados
 
 
 ## 🌐 Socials:
